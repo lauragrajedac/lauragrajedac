@@ -8,5 +8,5 @@
 - 😄 Pronouns: she/her
 - ⚡ My hobbies: to do hula hoop with light and fire, to assemble a large puzzle, to draw, to swim, to learn and more.
 
-  ## Love
+  ## Love 💙
 
